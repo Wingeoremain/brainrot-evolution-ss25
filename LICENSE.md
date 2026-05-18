@@ -1,4 +1,4 @@
-#  
+#  Advanced brainrot evolution script is the best brainrot evolution script with teleport and fly. Safe, reliable, and optimized for maximum performance.
 
 
 
